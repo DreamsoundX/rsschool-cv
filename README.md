@@ -1,1 +1,1 @@
- https://DreamsoundX.github.io/rsschool-cv/cv
+ https://DreamsoundX.github.io/rsschool-cv/
